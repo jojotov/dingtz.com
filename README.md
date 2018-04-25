@@ -1,0 +1,2 @@
+# dingtz.com
+My Blog
